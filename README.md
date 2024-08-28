@@ -11,8 +11,8 @@
 📫 Bạn có thể liên hệ với tôi qua:
 
 * **Email:** contact@longwebstudio.com
-* **Website:** [https://longwebstudio.com](https://longwebstudio.com)
-* **Fanpage:** [https://www.facebook.com/longwebstudio]
+* **Website:** [https://longwebstudio.net](https://longwebstudio.net)
+* **Fanpage:** [fb.me/longwebstudio](https://www.facebook.com/longwebstudio)
 
 😄 Đại từ nhân xưng: Anh/Ông
 
