@@ -10,7 +10,7 @@
 
 📫 Bạn có thể liên hệ với tôi qua:
 
-* **Email:** contact@longwebstudio.com
+* **Email:** contact@longwebstudio.net
 * **Website:** [https://longwebstudio.net](https://longwebstudio.net)
 * **Fanpage:** [fb.me/longwebstudio](https://www.facebook.com/longwebstudio)
 
